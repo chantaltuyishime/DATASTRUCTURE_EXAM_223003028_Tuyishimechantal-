@@ -91,7 +91,8 @@ SCREEN SHOOT
 ![Screenshot 5](https://github.com/user-attachments/assets/dc13367f-cefc-496c-ade1-4695744c6541)
 ![Screenshot 4](https://github.com/user-attachments/assets/971d95db-744a-4be8-870a-ac53480524ea)
 ![Screenshot 3](https://github.com/user-attachments/assets/ea52081a-e45c-410f-9e17-10fe5c72eccc)
-![Screenshot 2](https://github.com/user-attachments/assets/d5e2389d-995e-479a-b7ff-4da9b906d46
+![Screenshot 2](https://github.com/user-attachments/assets/fdc4c42d-20cc-4280-a81d-b1ed2c230194)
+
 ![Screenshot 1](https://github.com/user-attachments/assets/1ec7ec59-b235-4fc7-8895-892c4a00455d)
 
 
